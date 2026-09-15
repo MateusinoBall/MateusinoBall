@@ -11,9 +11,10 @@ here have some informations about me 📝⭐:
 - 😄 Objective with Sandpixels: Turn it famous the most.
 - ⚡ Fun fact: You know, I have 11 years and I will create 50% Sandpixels code on my TV.
 - 💭 My dream is: have a Galaxy Tab A11+ that costs R$1400/$275. if you want to help me donating some money, this will help me to buy my Tablet ☺️.
-- 💵
+- 💵 How to send money: here on Brazil everyone use Pix, you can send searching "Wize" (it's obligatory have a account) you search how to send a pix, after you know, you put my E-mail and send how Many you want.
 
 ## 🎮 Sandpixels Informations 🎮
 
-Name: Sanpixelsndpixels027
+Name: Sandpixels 
+release Day: 05/May/2027
 demo Sandpixels: limited edition of Sandpixels. (available: 19/Oct/2026 to 20/Apr/2027)
